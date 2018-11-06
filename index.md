@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Bienvenido a mi blog
 
-I'm glad you are here. I plan to talk about ...
+Nose muy bien de que va esto pero esta guay
